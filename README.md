@@ -1,5 +1,5 @@
 # 💫 About Me:
-🌱 I’m currently pursuing a Computer Science degree at California State University, Northridge<br>📫 How to reach me: victorum6943208@gmail.com <br>🚀 Seeking internship opportunities related to Computer Science<br>⚡ Enjoy weightlifting, hiking, and cooking<br>💬 “A good programmer is someone who always looks both ways before crossing a one-way street.” - Doug Linder
+🌱 I’m currently pursuing a Computer Science degree at California State University, Northridge<br>📫 How to reach me: victorum6943208@gmail.com <br>🚀 Seeking internship opportunities related to Computer Science<br>⚡ Enjoy weightlifting, hiking, and cooking<br>
 
 
 ## 🌐 Socials:
